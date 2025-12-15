@@ -4,3 +4,20 @@
 Happiness and freedom begin with a clear understanding of one principle: Some things are within our control, and some things are not.
 
 幸福与自由始于一个清晰的原则：有些事在我们掌控之中，有些事不在
+
+It is only after you have faced up to this fundamental rule and learned to distinguish between what you can and can't control that inner tranquility and outer effectiveness become possible. 
+
+唯有直面这一根本法则，并学会分辨哪些是你能掌控的、哪些是你不能掌控的，内在的宁静与外在的成效才会成为可能
+
+
+Within our control are our own opinions, aspirations, desires, and the things that repel us. These areas are quite rightly our concern, because they are directly subject to our influence. We always have a choice about the contents and character of our inner lives.
+
+在我们掌控之中的，是我们的观点、志向、欲望，以及那些令我们厌恶的事物。这些领域理所当然属于我们的关注，因为它们直接受我们的影响。我们始终可以选择自己内心世界的内容与品格
+
+Outside our control, however, are such things as what kind of body we have, whether we're born into wealth or strike it rich, how we are regarded by others, and our status in society. We must remember that those things are externals and are therefore not our concern. Trying to control or to change what we can't only results in torment.
+
+不在我们掌控之中的，是我们的身体状况、出生时是否富有或后来是否致富、他人如何看待我们，以及我们在社会中的地位。我们必须记住，这些都是外在之物，因此不应成为我们的关注。试图去掌控或改变那些我们无法掌控的事，只会带来痛苦
+
+Remember: The things within our power are naturally at our disposal, free from any restraint or hindrance; but those things outside our power are weak, dependent, or determined by the whims and actions of others. Remember, too, that if you think that you have free rein over things that are naturally beyond your control, or if you attempt to adopt the affairs of others as your won, your pursuits will be thwarted and you will become a frustrated, anxious, and fault-finding person.
+
+记住：在我们掌控之中的事物，自然任由我们支配，不受任何限制或阻碍；但那些不在我们掌控之中的事物，则是脆弱的、依赖的，或由他人的意志与行为所决定。再记住，如果你以为自己能随心所欲地掌控那些本不属于你掌控的事物，或者试图把他人的事务当作自己的，你的追求必将受挫，你也会变得沮丧、焦虑、挑剔
