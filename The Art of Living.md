@@ -22,7 +22,7 @@ Remember: The things within our power are naturally at our disposal, free from a
 
 记住：在我们掌控之中的事物，自然任由我们支配，不受任何限制或阻碍；但那些不在我们掌控之中的事物，则是脆弱的、依赖的，或由他人的意志与行为所决定。再记住，如果你以为自己能随心所欲地掌控那些本不属于你掌控的事物，或者试图把他人的事务当作自己的，你的追求必将受挫，你也会变得沮丧、焦虑、挑剔
 
-## Stick with your own business 
+## 2 Stick with your own business 
 守己之事，不涉他务
 
 Keep your attention focused entirely on what is truly your own concern, and be clear that what belongs to others is their business and none of yours. If you do this, you will be impervious to coercion and no one can ever hold you back. You will be truly free and effective, for your efforts will be put to good use and won't be foolishly squandered finding fault with or opposing others.
