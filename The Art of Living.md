@@ -21,3 +21,18 @@ Outside our control, however, are such things as what kind of body we have, whet
 Remember: The things within our power are naturally at our disposal, free from any restraint or hindrance; but those things outside our power are weak, dependent, or determined by the whims and actions of others. Remember, too, that if you think that you have free rein over things that are naturally beyond your control, or if you attempt to adopt the affairs of others as your won, your pursuits will be thwarted and you will become a frustrated, anxious, and fault-finding person.
 
 记住：在我们掌控之中的事物，自然任由我们支配，不受任何限制或阻碍；但那些不在我们掌控之中的事物，则是脆弱的、依赖的，或由他人的意志与行为所决定。再记住，如果你以为自己能随心所欲地掌控那些本不属于你掌控的事物，或者试图把他人的事务当作自己的，你的追求必将受挫，你也会变得沮丧、焦虑、挑剔
+
+## Stick with your own business 
+守己之事，不涉他务
+
+Keep your attention focused entirely on what is truly your own concern, and be clear that what belongs to others is their business and none of yours. If you do this, you will be impervious to coercion and no one can ever hold you back. You will be truly free and effective, for your efforts will be put to good use and won't be foolishly squandered finding fault with or opposing others.
+
+将注意力完全专注于真正属于你自己的事务，并清楚地认识到属于他人的事是他们的事，而不是你的。如果你能做到这一点，你将不受胁迫，也不会被任何人阻碍。你将真正自由而高效，因为你的努力会被合理运用，而不会被愚蠢地浪费在挑剔或反对他人上
+
+In knowing and attending to what actually concerns you, you cannot be made to do anything against your will; others can't hurt you, you don't incur enemies or suffer harm 
+
+当你明白并专注于真正属于你自己的事务时，你就不会被迫做违背意愿的事；他人无法伤害你，你也不会树敌或遭受损害 
+
+If you aim to live by such principles, remember that it won't be easy: you must give up some things entirely; and postpone others for now. You may well have to forego wealth and power if you want to assure the attainment of happiness and freedom 
+
+如果你立志依循这些原则生活，请记住这并不容易：你必须彻底放弃一些事物；而另一些则需要暂时搁置。若你想确保获得幸福与自由，你很可能必须舍弃财富与权力
