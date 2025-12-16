@@ -36,3 +36,11 @@ In knowing and attending to what actually concerns you, you cannot be made to do
 If you aim to live by such principles, remember that it won't be easy: you must give up some things entirely; and postpone others for now. You may well have to forego wealth and power if you want to assure the attainment of happiness and freedom 
 
 如果你立志依循这些原则生活，请记住这并不容易：你必须彻底放弃一些事物；而另一些则需要暂时搁置。若你想确保获得幸福与自由，你很可能必须舍弃财富与权力
+
+## 3 Recognize appearances for what they really are
+
+识其貌，明其真
+
+From now on, practice saying to everything that appears unpleasant: "You are just an appearance and by no means what you appear to be." And then thoroughly consider the matter according to the principles just discussed, primarily: Does this appearance concern the things that are within my own control or those that are not? If it concerns anything outside your control, train yourself not to worry about it
+
+从现在开始，凡是看起来不愉快的事，都练习对它说：‘你只是一个表象，绝非你看起来的那样。’然后依据我们刚才讨论的原则彻底审视这件事，首先要问：这个表象涉及的是我可控的事，还是不可控的事？如果它涉及任何不在你掌控之内的东西，就训练自己不为之忧
