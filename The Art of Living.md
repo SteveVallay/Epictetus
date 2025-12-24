@@ -60,3 +60,7 @@ Aversion insists that we must avoid the things that repel us.
 Typically when we don't get what we want, we are disappointed, and when we get what we don't want, we are distressed.
 
 通常，当我们得不到想要的东西时会失望；而当我们得到不想要的东西时则会感到痛苦。
+
+If, then, you avoid only those undesirable things that are contrary to your natural well-being and are within your control, you won't ever incur anything you truly don't want. However, if you try to avoid inevitabilities such as sickness, death, or misfortune, over which you have no real control, you will make yourself and others around you suffer.
+
+因此，如果你只避开那些真正损害你本性福祉、且在你掌控之内的事物，你就永远不会遭遇自己真正不愿面对的东西。然而，如果你试图逃避那些不可避免的事——例如疾病、死亡或不幸——这些并非你所能控制，你只会让自己和身边的人受苦。
