@@ -44,3 +44,9 @@ If you aim to live by such principles, remember that it won't be easy: you must 
 From now on, practice saying to everything that appears unpleasant: "You are just an appearance and by no means what you appear to be." And then thoroughly consider the matter according to the principles just discussed, primarily: Does this appearance concern the things that are within my own control or those that are not? If it concerns anything outside your control, train yourself not to worry about it
 
 从现在开始，凡是看起来不愉快的事，都练习对它说：‘你只是一个表象，绝非你看起来的那样。’然后依据我们刚才讨论的原则彻底审视这件事，首先要问：这个表象涉及的是我可控的事，还是不可控的事？如果它涉及任何不在你掌控之内的东西，就训练自己不为之忧
+
+## 4 Desire demands its own attainment 
+
+欲望要求自身被实现 
+
+
