@@ -56,3 +56,7 @@ Our desires and aversions are mercurial rulers. They demand to be pleased. Desir
 Aversion insists that we must avoid the things that repel us.
 
 厌恶如令：凡使我生厌者，皆当远避。
+
+Typically when we don't get what we want, we are disappointed, and when we get what we don't want, we are distressed.
+
+通常，当我们得不到想要的东西时会失望；而当我们得到不想要的东西时则会感到痛苦。
