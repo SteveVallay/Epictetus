@@ -73,4 +73,8 @@ Do your best to rein in your desire. For if you desire something that isn't with
 
 尽力约束你的欲望。因为如果你渴求的是不在你掌控之内的事，失望必然随之而来；与此同时，你也会忽视那些真正值得你渴求、且确实在你掌控之内的事物。
 
+Of course, there are times when for practical reasons you must go after one thing or shun another, but do so with grace, finesse, and flexibility
+
+当然，有时出于实际的原因，你必须追求某些事物或避开另一些事物，但要以从容、得体而灵活的方式去做。
+
 
