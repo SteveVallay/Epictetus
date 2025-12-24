@@ -49,4 +49,7 @@ From now on, practice saying to everything that appears unpleasant: "You are jus
 
 欲望要求自身被实现 
 
+Our desires and aversions are mercurial rulers. They demand to be pleased. Desire commands us to run off and get what we want.
+
+欲望与厌恶如同善变的君主，总要人侍奉。欲望一声令下，我们便奔去追求所欲之物。
 
