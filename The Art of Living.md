@@ -53,3 +53,6 @@ Our desires and aversions are mercurial rulers. They demand to be pleased. Desir
 
 欲望与厌恶如同善变的君主，总要人侍奉。欲望一声令下，我们便奔去追求所欲之物。
 
+Aversion insists that we must avoid the things that repel us.
+
+厌恶如令：凡使我生厌者，皆当远避。
