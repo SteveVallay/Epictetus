@@ -68,3 +68,9 @@ If, then, you avoid only those undesirable things that are contrary to your natu
 Desire and aversion, though powerful, are but habits. And we can train ourselves to have better habits. Restrain the habit of being repelled by all those things that aren't within your control, and focus instead on combating things within your power that are not good for you.
 
 欲望与厌恶虽强大，却不过是习惯。而我们可以训练自己养成更好的习惯。克制那种对不在你掌控之内的事物产生厌恶的习惯，把注意力转向对付那些真正由你掌控、却对你不利的东西。
+
+Do your best to rein in your desire. For if you desire something that isn't within your own control, disappointment will surely follow; meanwhile, you will be neglecting the very things that are within your control that are worthy of desire.
+
+尽力约束你的欲望。因为如果你渴求的是不在你掌控之内的事，失望必然随之而来；与此同时，你也会忽视那些真正值得你渴求、且确实在你掌控之内的事物。
+
+
