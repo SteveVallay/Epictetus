@@ -77,4 +77,11 @@ Of course, there are times when for practical reasons you must go after one thin
 
 当然，有时出于实际的原因，你必须追求某些事物或避开另一些事物，但要以从容、得体而灵活的方式去做。
 
+## 5 See things for what they are
+
+看清事物本来面目 
+
+Circumstances do not rise to meet our expectations. Events happen as they do. People behave as they are. Embrace what you actually get. 
+
+境遇从不为迎合期待而生。凡事发生，皆有其道；凡人行止，皆出其本。请拥抱生命真正赋予你的一切。
 
