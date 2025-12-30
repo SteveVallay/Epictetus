@@ -93,3 +93,7 @@ Think about what delights you—the tools on which you depend, the people whom y
 
 想一想那些令你喜悦的事物——你所依赖的工具、你所珍爱的人。但要记住，它们都有各自独立的本性，这与我们对它们的看法是完全不同的两回事。
 
+As an exercise, consider the smallest things to which you are attached. For instance, suppose you have a favorite cup. It is, after all, merely a cup; so if it should break, you could cope. Next build up to things—or people— toward which your clinging feelings and thoughts intensify. Remember, for example, when you embrace your child, your husband, your wife, you are embracing a mortal. Thus, if one of them should die, you could bear it with tranquility.
+
+
+且作一番观想，从你最细微的执念开始。 若你偏爱某只杯盏，请记得它终究只是杯盏；一旦破碎，你自能坦然处之。由此递进，审视那些令你依恋日深的万物与至亲。当你拥抱孩子或爱侣时，请清醒地意识到：你正拥抱着的，是一个终究会逝去的生命。 唯有如此，当死神降临时，你方能以宁静之心承接这份哀伤。
