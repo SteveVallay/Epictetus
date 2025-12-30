@@ -97,3 +97,19 @@ As an exercise, consider the smallest things to which you are attached. For inst
 
 
 且作一番观想，从你最细微的执念开始。 若你偏爱某只杯盏，请记得它终究只是杯盏；一旦破碎，你自能坦然处之。由此递进，审视那些令你依恋日深的万物与至亲。当你拥抱孩子或爱侣时，请清醒地意识到：你正拥抱着的，是一个终究会逝去的生命。 唯有如此，当死神降临时，你方能以宁静之心承接这份哀伤。
+
+When something happens, the only thing in your power is your attitude toward it; you can either accept it or resent it. 
+
+当事情发生时，你唯一能掌控的，就是你对它的态度；你可以选择接受，也可以选择怨恨。
+
+What really frightens and dismays us is not external events themselves, but the way in which we think about them. It is not things that disturb us, but our interpretation of their significance.
+
+真正令我们恐惧和沮丧的，并不是外在的事件本身，而是我们对它们的看法。扰乱我们的不是事物本身，而是我们对其意义的解读。 
+
+Stop scaring yourself with impetuous notions, with your reactive impressions of the way things are!
+
+停止用那些鲁莽的臆想惊吓自己，也别再困守于对事物的应激成见。看清本相，方能止息内心的惶恐。
+
+Things and people are not what we wish them to be nor what they seem to be. They are what they are.
+
+众生万物，非你我所期，亦非肉眼所见。剥落假饰与幻求，其本相如是。
