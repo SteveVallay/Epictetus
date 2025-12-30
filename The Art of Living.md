@@ -85,3 +85,11 @@ Circumstances do not rise to meet our expectations. Events happen as they do. Pe
 
 境遇从不为迎合期待而生。凡事发生，皆有其道；凡人行止，皆出其本。请拥抱生命真正赋予你的一切。
 
+Open your eyes: See things for what they really are, thereby sparing yourself the pain of false attachments and avoidable devastation.
+
+明心见性，直视本原。如此则不困于虚妄之情，不陷于无妄之灾。
+
+Think about what delights you—the tools on which you depend, the people whom you cherish. But remember that they have their own distinct character, which is quite a separate matter from how we happen to regard them
+
+想一想那些令你喜悦的事物——你所依赖的工具、你所珍爱的人。但要记住，它们都有各自独立的本性，这与我们对它们的看法是完全不同的两回事。
+
