@@ -145,3 +145,22 @@ Therefore even death is no big deal in and of itself. It is our notion of death,
 
 因此，死亡本身并不是什么大不了的事。真正令我们恐惧的，是我们关于死亡的观念——我们认为它可怕的想法。关于死亡有许多不同的思考方式。仔细审视你对死亡——以及其他一切——的观念：它们真的真实吗？它们真的对你有益吗？不要惧怕死亡或痛苦；要惧怕的是对死亡或痛苦的恐惧。我们无法选择外在的环境，但我们始终可以选择如何回应它们
 
+## 8 No shame, no blame
+
+不羞耻，不责难
+
+If it is our feelings about things that torment us rather than the things themselves, it follows that blaming others is silly. Therefore, when we suffer setbacks, disturbances, or grief, let us never place the blame on others, but on our own attitudes
+
+如果折磨我们的不是事物本身，而是我们对事物的感受，那么责怪他人就是愚蠢的。因此，当我们遭遇挫折、干扰或悲伤时，不要把责任归咎于他人，而要归咎于我们自己的态度
+
+Small-minded people habitually reproach others for their own misfortunes. Average people reproach themselves. Those are dedicated to a life of wisdom understand that the impulse to blame something or someone is foolishness, that there is nothing to be gained in blaming, whether it be others or oneself.
+
+心胸狭隘的人习惯于因自己的不幸而责备他人。普通人则责备自己。而那些致力于智慧生活的人明白，责怪某物或某人是一种愚蠢，因为无论是责备他人还是责备自己，都毫无益处 
+
+One of the signs of the dawning of moral progress is the gradual extinguishing of blame. We see the futility of finger-pointing. The more we examine our attitudes and work on ourselves, the less we are apt to be swept away by stormy emotion reactions in which we seek easy explanations for unbidden events.
+
+道德进步初现的一个标志，就是责备的逐渐消失。我们开始看到指责的徒劳。越是审视自己的态度并努力改进自身，我们就越不容易被情绪的风暴所裹挟，在那些情绪反应中，我们往往试图为突如其来的事件寻找简单的解释
+
+Things simply are what they are. Other people think what they will think; it is of no concern to us. No Shame. No Blame. 
+
+事物只是它们本来的样子。别人会有他们自己的想法；这与我们无关。无羞耻。无责备
