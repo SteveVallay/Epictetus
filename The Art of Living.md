@@ -164,3 +164,36 @@ One of the signs of the dawning of moral progress is the gradual extinguishing o
 Things simply are what they are. Other people think what they will think; it is of no concern to us. No Shame. No Blame. 
 
 事物只是它们本来的样子。别人会有他们自己的想法；这与我们无关。无羞耻。无责备
+
+## 9 Create your own merit 
+
+创造你自己的价值 
+
+Never depend on the admiration of others. There is no strength in it. Personal merit cannot be derived from an external source. It is not to be found in your personal associations, not can it be found in the regard of other people. It is a fact of life that other people, even people who love you, will not necessarily agree with your ideas, understand you, or share your enthusiasms. Grow up! Who cares what other people think about you!
+
+永远不要依赖他人的赞赏，那其中没有力量。个人的价值不能从外部来源获得。它既不在你的个人关系中，也不在他人的看法中。事实是，别人——即使是爱你的人——也未必会同意你的想法、理解你，或分享你的热情。成熟起来吧！谁在乎别人怎么看你！
+
+Create your own merit
+
+创造你自己的价值 
+
+Personal merit cannot be achieved through our associations with people of excellence. You have been given your own work to do. Get to it right now, do your best at it, and don't be concerned with who is watching you.
+
+个人的价值不能通过与卓越之人的交往而获得。你已经被赋予了属于你自己的工作。立刻着手去做，尽力完成它，不要在意谁在看你
+
+Do your own useful work without regard to the honor or admiration your efforts might win from others. There is no such thing as vicarious merit
+
+做你自己有用的工作，而不要在意你的努力可能从他人那里赢得的荣誉或赞赏。没有所谓的替代性的价值 
+
+Other people's triumphs an excellences belong to them. Likewise, your possessions may have excellence, but you yourself don't derive excellence from them.
+
+他人的成就与卓越属于他们自己。同样，你的财物也许具有卓越之处，但你自身并不会因此而获得卓越
+
+Think about it What is really your own? The use you make of the ideas, resources, and opportunities that come your way. Do you have books? Read them. Learn from them. Apply their wisdom. Do you have specialized knowledge? Put it to its full and good use. Do you have tools? Get the out and build or repair things with them. Do you have a good idea? Follow up and follow through on it Make the most of what you've got, what is actually yours
+
+想一想，什么才是真正属于你的？是你对那些来到你身边的思想、资源和机会的运用。你有书吗？读它们，从中学习，并应用它们的智慧。你有专业知识吗？充分而善用它。你有工具吗？拿出来，用它们去建造或修理东西。你有好点子吗？跟进并贯彻它。充分利用你所拥有的、真正属于你的东西
+
+You can be justifiably happy with yourself and at ease when you've harmonized your actions with nature by recognizing what truly is your
+own. 
+
+当你认清什么才是真正属于你的，并让你的行动与自然和谐一致时，你就可以理直气壮地为自己感到快乐，并心安理得
