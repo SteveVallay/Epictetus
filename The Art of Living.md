@@ -95,7 +95,6 @@ Think about what delights you—the tools on which you depend, the people whom y
 
 As an exercise, consider the smallest things to which you are attached. For instance, suppose you have a favorite cup. It is, after all, merely a cup; so if it should break, you could cope. Next build up to things—or people— toward which your clinging feelings and thoughts intensify. Remember, for example, when you embrace your child, your husband, your wife, you are embracing a mortal. Thus, if one of them should die, you could bear it with tranquility.
 
-
 且作一番观想，从你最细微的执念开始。 若你偏爱某只杯盏，请记得它终究只是杯盏；一旦破碎，你自能坦然处之。由此递进，审视那些令你依恋日深的万物与至亲。当你拥抱孩子或爱侣时，请清醒地意识到：你正拥抱着的，是一个终究会逝去的生命。 唯有如此，当死神降临时，你方能以宁静之心承接这份哀伤。
 
 When something happens, the only thing in your power is your attitude toward it; you can either accept it or resent it. 
@@ -113,3 +112,36 @@ Stop scaring yourself with impetuous notions, with your reactive impressions of 
 Things and people are not what we wish them to be nor what they seem to be. They are what they are.
 
 众生万物，非你我所期，亦非肉眼所见。剥落假饰与幻求，其本相如是。
+
+## 6 Harmonize your actions with the way life is
+
+顺应生活的节奏去行动
+
+Don't try to make your own rules
+
+不要试图制定你自己的规则
+
+Conduct yourself in all matters, grand and public or small and domestic, in accordance with the laws of nature. Harmonizing your will with nature should be your utmost ideal 
+
+在所有事务中，无论是宏大的公共事务，还是细微的家庭琐事，都要依照自然的法则行事。让你的意志与自然和谐一致，应当成为你最高的理想。
+
+Where do you practice this ideal? In the particulars of your own daily life with its uniquely personal tasks and duties. When you carry out your tasks, such as taking a bath, do so—to the best of your ability in harmony with nature. When you eat do so—to the best of your ability in harmony with nature, and so on
+
+你在哪里践行这一理想？在你日常生活的具体事务中，在那些独特的个人任务和责任里。当你完成这些任务时，比如洗澡，要尽力做到与自然和谐一致。当你吃饭时，也要尽力做到与自然和谐一致，诸如此类。
+
+It is not so much what are you doing as how you are doing it. When we properly understand and live by this principles, while difficulties will arise—for they are part of the divine order too—inner peace will still be possible
+
+重要的并不是你在做什么，而是你如何去做。当我们真正理解并遵循这一原则时，尽管困难仍会出现——因为它们也是神圣秩序的一部分——内心的平静依然是可能的
+
+## 7 Events don't hurt us, but our views of them can
+
+事件本身并不会伤害我们，但我们对它们的看法却可能会
+
+Things themselves don't hurt or hinder us. Nor do other people. How we view these things is another matter. It is our attitudes and reactions that give us trouble
+
+事物本身并不会伤害或阻碍我们，其他人也不会。我们如何看待这些事物则是另一回事。真正让我们困扰的，是我们的态度和反应
+
+Therefore even death is no big deal in and of itself. It is our notion of death, our idea that it is terrible, that terrifies us. There are so many different ways to think about death. Scrutinize your notions about death—and everything else. Are they really true? Are they doing you any good? Don't dread death or pain; dread the fear of death or pain. We cannot choose our external circumstances, but we can always choose how we respond to them
+
+因此，死亡本身并不是什么大不了的事。真正令我们恐惧的，是我们关于死亡的观念——我们认为它可怕的想法。关于死亡有许多不同的思考方式。仔细审视你对死亡——以及其他一切——的观念：它们真的真实吗？它们真的对你有益吗？不要惧怕死亡或痛苦；要惧怕的是对死亡或痛苦的恐惧。我们无法选择外在的环境，但我们始终可以选择如何回应它们
+
