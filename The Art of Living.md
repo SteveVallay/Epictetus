@@ -197,3 +197,17 @@ You can be justifiably happy with yourself and at ease when you've harmonized yo
 own. 
 
 当你认清什么才是真正属于你的，并让你的行动与自然和谐一致时，你就可以理直气壮地为自己感到快乐，并心安理得
+
+## 10 Focus on your main duty 
+
+专注于你的主要职责 
+
+There is a time and place for diversion and amusements, but you should never allow them to override your true purposes. If you were on a voyage and the ship anchored in a harbor, you might go ashore for water and happen to pick up a shellfish or a plant. But be careful; listen for the call of the captain. Keep your attention directed at the ship. Getting distracted by trifles is the easiest thing in the world. Should the captain call, you must be ready to leave those distractions and come running, without even looking back 
+
+娱乐和消遣自有其时间和场合，但它们绝不能凌驾于你的真正目标之上。假如你正在航行，船只停泊在港口，你或许会上岸取水，并顺便捡起一个贝类或植物。但要小心，倾听船长的召唤。把注意力集中在船上。被琐事分心是世上最容易的事。一旦船长呼唤，你必须准备好立刻放下那些分心之物，奔回船上，甚至不必回头 
+
+If you are old, do not go far from the ship, or you might fail to appear when you are called for
+
+如果你已年老，就不要离船太远，否则在被召唤时可能无法出现
+
+
